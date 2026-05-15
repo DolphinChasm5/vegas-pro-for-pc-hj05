@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Vegas Pro for PC | Vegas Pro for Windows automation with professional Vegas Pro for PC | Vegas Pro for Windows Automation | title-animation + batch-processing.
 
 
 
